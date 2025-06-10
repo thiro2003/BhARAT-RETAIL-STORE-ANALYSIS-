@@ -75,9 +75,9 @@ This dashboard provides a comprehensive visual analysis of Bharat Retail Storeâ€
 
 For questions, insights, or collaboration inquiries:
 
-**Analyst**: [Your Name]  
-**Email**: [your.email@example.com]  
-**LinkedIn**: [linkedin.com/in/yourprofile]  
+**Analyst**: Rohit Sul 
+**Email**: Rohitsul1112003@gmail.com 
+**LinkedIn**:[ [linkedin.com/in/yourprofile]](https://www.linkedin.com/in/rohit-sul-780265283/)  
 
 ---
 
